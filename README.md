@@ -1,4 +1,7 @@
 # rafi138.github.io
 
 
-rafiqul.abprs@gmail.com
+Email: rafiqul.abprs@gmail.com
+
+
+http://rafi138.github.io/
